@@ -10,4 +10,4 @@
    - jsx (REALLY basic)
    - Pixel art (basic)
   
-- I will accept if you have work for me as always it is on my capacities as a programmer or artist
+- I am currently available and waiting for find work
