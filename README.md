@@ -1,5 +1,5 @@
 # Information
-- I’m Shak Cross
+- I’m Shako Cross
 
 - I’m interested in programation and also in pixel art, always wanting to learn more from my envriontment of work
 
